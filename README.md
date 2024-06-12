@@ -1,5 +1,2 @@
 # ola-seja-bem-vindo
-
-
-
-
+💯
